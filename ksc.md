@@ -8,17 +8,17 @@
 
 At that day two girls from class 2-D was hanging out together.
 
-It was me Kei Karuizawa and my friend Maya Sato. The two of us have spent time together pretty often several months ago, but that time has been reduced significantly. It's not like we had a fight or something similar. Perhaps on subconscious level I felt guilty for her.
+It was me Kei Karuizawa and my friend Maya Sato. The two of us have spent time together pretty often several months ago, but that time has been reduced significantly. It's not like we had a fight or something similar. Perhaps on subconscious level I felt guilty of her.
 
 "Sorry, Karuizawa-san, that I called you so suddenly."
 
 "No, It's all right. I wanted to talk with you as well, Sato-san. We didn't go anywhere like that for a long time, did we?"
 
-"Yes. Almost from beginnig of the school, we use to hang out together."
+"Yes. Almost from beginnig of the school, we used to hang out together."
 
 Walking a little ahead of Sato I looked back to look at her and asked.
 
-"So that are we going to do? It's too early to have a lunch, uh..."
+"So that are we going to do? It's too early to have lunch, uh..."
 
 It was now about 11 in the morning.
 
@@ -34,13 +34,13 @@ But when we were just about to enter the mall, she started paniсking.
 
 When she said that she pointed to school building which obviously have nothing in common with the mall.
 
-"School? Do you have something to do there? Today is day off and we are not in school uniform, are we?"
+"School? Do you have something to do there? Today is day off, and we are not in school uniform, are we?"
 
 "It doesn't have to be a school. I just want to go where there are not other people around."
 
 I frowned because I didn't understand that she meant.
 
-No, of course, I had a feeling about that. However I put it into the farthest corner of my mind, considering that now this is irrelevant.
+No, of course, I had a feeling about that. However, I put it into the farthest corner of my mind, considering that now this is irrelevant.
 
 It will be better if I keep talking like I don't notice anything.
 
@@ -52,7 +52,7 @@ I had a very bad feeling but I didn't have any choice beside to follow after her
 
 I agreed and we went to school building.
 
-We found the place where were not people so we don't have to worry if somebody hears us.
+We found the place where were not people, so we don't have to worry if somebody hears us.
 
 "Come on, lay out what happened. We are friend, aren't we?"
 
@@ -60,7 +60,7 @@ I didn't try to smooth things over when I asked that.
 
 Even if I understand it I still have to ask like this.
 
-First and foremost Kei Karuizawa is key figure in class 2-D that unifies all girls. I am self-centred person who doesn't think about feelings of others.
+First and foremost Kei Karuizawa is key figure in class 2-D that unifies all girls. I am a self-centred person who doesn't think about feelings of others.
 
 If I stopped then my image would be ruined.
 
@@ -88,7 +88,7 @@ Nevertheless, thanks to my experience I could hide my emotions away.
 
 "And? I thought that telling you all will be just waste of time. Why did you ask? Planning to became his new girlfriend?"
 
-So far she din't mention Kiyotaka. My question was aimed to confirm my concerns. Sato-san didn't answer my question. I could not see her face.
+So far she didn't mention Kiyotaka. My question was aimed to confirm my concerns. Sato-san didn't answer my question. I could not see her face.
 
 "Karuizawa-san broke up with Hirata-kun for another 'goal', am I right?"
 
@@ -98,7 +98,7 @@ I got that... As expected from Sato-san, she noticed. In the end she discovered 
 
 Until this moment I forced myself to act as usual.
 
-While I understanding that our relationship sooner or later will be revealed I still didn't have other choice beside to keep evading the questions. 
+While I were understanding that our relationship sooner or later will be revealed I still didn't have other choice beside to keep evading the questions. 
 
 I always can deny no matter that she will ask.
 
@@ -116,13 +116,13 @@ As expected she was able to see through me.
 
 If she asked about my feelings towards him, then I would still able to hide my emotions, perhaps.
 
-But that she meant it was something more strong.
+But that she meant it was something stronger.
 
 ![Kei](https://kei.moe/assets/images/gallery/LN_v12/Youkoso.Jitsuryoku.Shijou.Shugi.no.Kyoushitsu.e_.2-Nensei-hen.full.2829790.jpg)
 
 "Am I right?"
 
-"Wait,no..no, wait! Why did you decide that?"
+"Wait, no... no, wait! Why did you decide that?"
 
 Of course, I begane to deny that. I have to do that. Now I can't just confess.
 
@@ -132,7 +132,7 @@ Before I could say that I wanted our eyes has met.
 
 She was angry but at the same time I can feel that she are going to cry.
 
-Her reaction was understandable, Sato-san trusted me and we even discussed her affection towards to Kiyotaka.
+Her reaction was understandable, Sato-san trusted me, and we even discussed her affection towards to Kiyotaka.
 
 At that time I helped her while hidding my own feelings. If I were in her place, when after my best friend started dating with guy, that I like, then I would aslo be angry and slap her...
 
@@ -152,9 +152,9 @@ I don't have any other way to avoid this situation.
 
 "Tell me the truth. Or else... Or else I can't be your friend anymore."
 
-Her words was overflown with emotions.
+Her words were overflown with emotions.
 
-Until the she tried to stay friend with me no matter what.
+Until now she tried to stay friend with me no matter what.
 
 "That's..."
 
