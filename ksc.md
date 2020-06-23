@@ -206,7 +206,7 @@ After hearing this sonorous sound I realised that she hitted me.
 
 I defenitly didn't expect that she could hit me.
 
-However, I'm afraid what I've done is not something Sato-san's heart can so easily forgive.
+However, I'm afraid that what I've done is not something Sato-san's heart can so easily forgive.
 
 "One isn't enough, is it?"
 
