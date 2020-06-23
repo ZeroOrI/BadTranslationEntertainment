@@ -1,0 +1,2 @@
+# BadTranslationEntertainment
+Tranlsation for LN
